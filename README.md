@@ -1,7 +1,8 @@
 Full video will be uploaded on YouTube soon...
 
-For 3D Printable Fusion 360 files, please join as my patreon, I will upload the files there.
-Patreon link: www.patreon.com/KARTIS
+For 3D Printable Fusion 360 files,
+You can get them on Patreon: www.patreon.com/KARTIS
+Get them on cults: https://cults3d.com/en/3d-model/gadget/distance-measuring-device
 
 <img width="1110" height="816" alt="image" src="https://github.com/user-attachments/assets/9cc6471b-7305-4bd0-ac0e-b05d725a1684" />
 
