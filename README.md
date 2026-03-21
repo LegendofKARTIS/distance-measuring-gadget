@@ -1,4 +1,4 @@
-Full video will be uploaded on YouTube soon...
+Full video uploaded on YouTube : https://youtu.be/8gXP6K45eiw
 
 For 3D Printable Fusion 360 files, <br>
 You can get them on Patreon: www.patreon.com/KARTIS <br>
