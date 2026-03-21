@@ -5,13 +5,13 @@ You can get them on Patreon: www.patreon.com/KARTIS <br>
 Get them on cults: https://cults3d.com/en/3d-model/gadget/distance-measuring-device <br>
 
 
-For 3D printed enclosures, contact: RS Innovations ( Whatsapp: 9445505833 )
-Address:
-No. 69/3, Karukku Main Rd, opp. to Rathinam Mahal, Menambedu, Ambattur, Chennai, Tamil Nadu 600053 Phone: 044 4799 0307 
-Website: https://rsinnovations.co.in?ref=1
-Follow them on Instagram: https://www.instagram.com/_rs_innovations?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==
-Instagram ID: _rs_innovations
-*Shop location:*
+For 3D printed enclosures, contact: RS Innovations ( Whatsapp: 9445505833 )  <br>
+Address: <br>
+No. 69/3, Karukku Main Rd, opp. to Rathinam Mahal, Menambedu, Ambattur, Chennai, Tamil Nadu 600053 Phone: 044 4799 0307  <br>
+Website: https://rsinnovations.co.in?ref=1  <br>
+Follow them on Instagram: https://www.instagram.com/_rs_innovations?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==  <br>
+Instagram ID: _rs_innovations  <br>
+*Shop location:*  <br>
 https://maps.app.goo.gl/9oCHZcS7daRWhW7X9
 
 Get the 3D model files here:
